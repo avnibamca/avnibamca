@@ -11,6 +11,4 @@ You can click the Preview link to take a look at your changes.
  💼 If you have questions,you can always contact me at: <br>
    Email: avnibak074@gmail.com <br> 
    <a href="https://www.linkedin.com/in/avniba-chudasma-22372617a/">LinkedIn</a> 
-   <a href="https://www.linkedin.com/in/milind-modi-88a23314b/">LinkedIn</a> 
-
 <div align="center">
